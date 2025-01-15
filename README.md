@@ -1,4 +1,4 @@
-# 2024 Telegram注册教学 ，电报使用教程，telegram注册收不到验证码怎么办？
+# Telegram注册教学 ，电报使用教程，telegram注册收不到验证码怎么办？
 Telegram 注册教学，新手入门教学：▶️ https://youtu.be/2hb7SHHKQsI
 
 ### 1、Telegram下载：https://telegram.org/apps<br>
