@@ -18,7 +18,7 @@ Telegram 注册教学，新手入门教学：▶️ https://youtu.be/2hb7SHHKQsI
 - 2、换个时间换号码注册
 - 3、切换wifi和手机数据
 - 4、<a href="https://kjfx.github.io/gv" target="_blank">用GV号注册</a>
-- 5、<a href="https://sms-activate.org/?ref=3730641" target="_blank">用接码平台注册</a>
+- 5、<a href="https://uyez.github.io/jm" target="_blank">用接码平台注册</a>
 <br>
 推荐使用GV号码注册，GV账号购买地址：https://xintaikeji.eu.org
 
